@@ -10,4 +10,4 @@ Y he estado enviando y acabando tareas y asistiendo a clases online.
 
 Ademas, nos han informado en la academia de ingles que tendremos el examen de prueba el proximo miercoles hasta el sabado de plazo para hacerlo.
 
-![Hasta la proxima entrada](https://tenor.com/view/inside-out-joy-hi-hey-hello-gif)
+![Hasta la proxima entrada](https://media.giphy.com/media/OK2gOT81vcSdi/giphy.gif)
