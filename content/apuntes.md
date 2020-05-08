@@ -1,6 +1,6 @@
-**Title**: Apuntes 
-**Date**: 2020-05-01 18:14
-**Category**: Blog
+Title: Apuntes 
+Date: 2020-05-01 18:14
+Category: Blog
 
 Esta semana me han cambiado las clases de mates del instituto a martes y jueves a las **12:00**, ademas ahora en lugar de hacerlas por **Skype** las hacemos por **Discord** ya que tuvimos problemas porque se metieron dos personas desconocidas a insultar y el profesor prefirio cambiar el modo de dar las clases. 
 
